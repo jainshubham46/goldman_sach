@@ -1,1 +1,0 @@
-# goldman_sach
